@@ -1,0 +1,1 @@
+# gitHub_palko12_vjezba_jedan
